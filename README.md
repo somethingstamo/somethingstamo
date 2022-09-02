@@ -1,6 +1,4 @@
-Look man idk what I'm doing I just wanna transfer files I don't wanna have to write a whole bio and everything.
-
-:)
+\*Insert unique readme.md here\*
 
 
 <!---
